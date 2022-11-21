@@ -1,1 +1,1 @@
-Monday tutorials
+tuesday tutorials
